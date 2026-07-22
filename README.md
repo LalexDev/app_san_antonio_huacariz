@@ -1,1 +1,0 @@
-# app_san_antonio_huacariz
